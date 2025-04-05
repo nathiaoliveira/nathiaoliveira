@@ -1,4 +1,4 @@
-## Oie, sou Nathia Oliveira. Desenvolvedora em desenvolvimento 🤖 hehe 🙃
+## Oie, sou Nathia Oliveira. Desenvolvendo uma desenvolvedora 🤖 hehe 🙃
 
 <img src="dese.svg" width="700"/>
 
